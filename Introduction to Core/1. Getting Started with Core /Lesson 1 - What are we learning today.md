@@ -1,5 +1,5 @@
 # What are we learning today?
-
+jdhdhdhdhd dhddhdhdh
 Hello everyone ☀️
 
 Exciting news: we're kicking off our first-ever course of Core blockchain’s learning track at Metaschool! Core is all about leveling up security, decentralization, AND scalability. We are super excited to have you with us on this journey to learn and build on Core!
